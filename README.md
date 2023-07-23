@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @andymrlit
 - 👀 I’m interested in hacking
 - 🌱  I’m currently learning coding
-- 💞️I collaborate with @zeeone ...
-- 📫 iam haitian ...🇭🇹😇
+- 💞️I collaborate with @zeeoneofficial...
+- 📫 i amamerican
 
 
 <!---
