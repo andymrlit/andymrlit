@@ -2,7 +2,7 @@
 - 👀 I’m interested in hacking
 - 🌱  I’m currently learning coding
 - 💞️I collaborate with @zeeoneofficial...
-- 📫 i amamerican
+- 📫 i am american
 
 
 <!---
